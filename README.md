@@ -6,4 +6,5 @@
 - ⚡ Fun fact: I love to draw and speak Japanese fluently!
 
 ### Contact me:
-[Linkedin](https://www.linkedin.com/in/marcia-ayumi-takashi/)
+[Linkedin](https://www.linkedin.com/in/marcia-ayumi-takashi/) 
+[e-Mail](marciat0693@gmail.com)
