@@ -7,4 +7,4 @@
 
 ### Contact me:
 [Linkedin](https://www.linkedin.com/in/marcia-ayumi-takashi/) 
-[e-Mail](marciat0693@gmail.com)
+[e-mail](marciat0693@gmail.com)
