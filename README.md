@@ -1,7 +1,7 @@
 ## Hi! I'm Marcia!! 👋 
 
 ### About me:
-- 🌱 I’m currently learning: Front-end!(December/20: Javascript, Wordpress, UI Design)
+- 🌱 I’m currently learning: Front-end!(May/21: React)
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I love to draw and speak Japanese fluently!
 
